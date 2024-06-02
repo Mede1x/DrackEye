@@ -30,3 +30,6 @@ contact Me Here :
 telegram : [@Meed_MH](https://t.me/old_Meed)
 Facebook : [Meed_MH](https://web.facebook.com/hack.meplz)
 
+## Warning
+
+i buy it for testing and ethical use 😃
