@@ -1,4 +1,5 @@
-![image](https://github.com/Mede1x/DrackEye/assets/112403755/3c20bec2-66e4-4c0b-b343-75a1e427f2f7)
+![Frame 2](https://github.com/Mede1x/DrackEye/assets/112403755/8f0bc903-30b5-430e-8196-fa93602fbb39)
+
 
 
 # DrackEye
