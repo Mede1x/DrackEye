@@ -32,4 +32,4 @@ Facebook : [Meed_MH](https://web.facebook.com/hack.meplz)
 
 ## Warning
 
-i buy it for testing and ethical use 😃
+i sell it for testing and ethical use 😃
